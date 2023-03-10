@@ -1,2 +1,2 @@
 # Aloha-2b
-Aloha to all from Mauritius
+Aloha to all surfers from Mauritius
